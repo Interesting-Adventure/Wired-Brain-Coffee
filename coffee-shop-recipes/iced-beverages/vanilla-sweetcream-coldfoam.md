@@ -4,7 +4,7 @@
 
 ## Ingredients
 
-- 8 Breakfast blend
+- 8 Cold brew
 - 1/4 cup of 2% milk
 - 1 Tbsp powdered sugar
 - 1/4 tsp vanilla extract
